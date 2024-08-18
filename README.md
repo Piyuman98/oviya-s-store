@@ -1,1 +1,0 @@
-# oviya-s-store
